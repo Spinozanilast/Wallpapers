@@ -1,0 +1,1 @@
+You can take these wallpapers and you can make desktop setups with them, then you will be the most successful TT or Instagram guy or girl. You can recommend them to others or distribute them on forums with wallpapers and I will not ask you for anything in return, because you will not be there, no one will see it.
